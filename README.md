@@ -1,5 +1,5 @@
 # 💫 About Me:
-volunteer Firefighter<br>working for GambleGames<br>Student<br>German
+volunteer Firefighter<br>Student<br>German
 
 
 ## 🌐 Socials:
